@@ -1,4 +1,4 @@
-# 
+# hypershot Scripts custom is the best hypershot Script, featuring auto-upgrade and esp. Safe and powerful for all your needs.
 
 
 
